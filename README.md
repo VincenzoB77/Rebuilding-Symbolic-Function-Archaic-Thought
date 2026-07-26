@@ -314,6 +314,6 @@ International Universities Press.
 
 REBUILDING SYMBOLIC FUNCTION | Vincenzo Bumbalo, MD |  Clifton Park, NY, USA
 
-© 2026 Dr. Vincenzo Bumbalo. All rights reserved. This work, including all concepts, theoretical formulations, terminology, structural models, clinical interpretations, and original ideas contained herein, is the exclusive intellectual property of Dr. Vincenzo Bumbalo. No part of this publication may be reproduced, distributed, stored, cited, referenced, transmitted, or adapted in any form or by any means — including electronic, mechanical, digital, or derivative formats — without
+© 2026 Dr. Vincenzo Bumbalo. All rights reserved. This work, including all concepts, theoretical formulations, terminology, structural models, clinical interpretations, and original ideas contained herein, is the exclusive intellectual property of Dr. Vincenzo Bumbalo. No part of this publication may be reproduced, distributed, stored, cited, referenced, transmitted, or adapted in any form or by any means — including electronic, mechanical, digital, or derivative formats — without the author’s explicit written permission. Unauthorized use, quotation of proprietary constructs, theoretical appropriation, or creation of derivative works based on the Bumbalo Model or any related formulations is strictly prohibited and constitutes a violation of international copyright law. All rights strictly reserved.
 
-the author’s explicit written permission. Unauthorized use, quotation of proprietary constructs, theoretical appropriation, or creation of derivative works based on the Bumbalo Model or any related formulations is strictly prohibited and constitutes a violation of international copyright law. All rights strictly reserved.
+
