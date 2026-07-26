@@ -23,6 +23,7 @@ Abstract
 
 This article explores the concept of symbolic function as a central axis of psychic organization, examining the conditions under which it fails, regresses, or remains undeveloped — a state here termed "archaic thought." Drawing on object relations theory, Bionian alpha-function, Winnicottian potential space, and contemporary mentalization-
 based frameworks, the paper argues that archaic thought — characterized by concreteness, magical thinking, projective identification, and somatic equivalence — represents not merely a deficit but a survival-oriented psychic organization. Therapeutic pathways toward rebuilding symbolic capacity are examined through a dual lens: theoretical modeling and clinical illustration. The article presents three clinical vignettes demonstrating how the analytic relationship itself becomes the crucible in which new symbolic structures can emerge. The implications for technique — particularly around containment, reverie, and the timing of interpretation — are discussed. The article concludes with a reflection on the ethics of symbolic restoration: respecting the patient's attachment to archaic modes while fostering the conditions for psychic growth.
+
 Keywords: symbolic function, archaic thought, alpha-function, mentalization, object relations, containment, potential space, psychoanalytic technique, therapeutic regression
 
 
